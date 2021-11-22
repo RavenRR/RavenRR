@@ -5,7 +5,7 @@
 
 - :dancers: I’m looking to collaborate on **open-source and group projects**
 
-- 📫 How to reach me **romeroravenr@gmail.com**
+- 📫 How to reach me **romerorraven@icloud.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
